@@ -1,7 +1,7 @@
-Kahoot
-
-I also have some kahoot hacks that higlight the answer once u load in but u have to type a long code if u do want the answer it will highlight after like .500ms just let me know if any of yall want that ik nobody is gonna see this but does anyone want it? if so i will drop it.
+Hello Everyone!
 
 
+IF anyone does want me to work on a different game like nitro type, or something else you guys have in mind i will try my best to work on hacks for that.
 
-I will also be working on some flooders in games.
+
+If anyone has any suggestions u want me to add in the blooket, prodidgy or kahoot please let me know!
